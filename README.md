@@ -1,1 +1,0 @@
-# privispolitic.github.io
